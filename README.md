@@ -1,4 +1,3 @@
-
 If a nuclear attack threatens the U.S., who is most likely to survive? It’s a question often explored in disaster, end-of-the-world films, but one that has resulted in the belief growth of an industry devoted to sheltering the wealthy and the powerful in the wake of a serious attack.
 
 Journalist Garrett Graff explores this phenomenon in his new book, “Raven Rock: The Story of the U.S. Government’s Secret Plan to Save Itself — While the Rest of Us Die”, where he brings to light how the U.S. government has begun to renovate and strengthen secret bunkers across the country to protect high-ranking government officials from a nuclear attack. The book looks at the intensified effort by the government and Congress to fund the top secret “Continuity of Government” plan, and a preview from the New York Post details a number of hidden bunkers scattered across the country.
