@@ -1,1 +1,1 @@
-If a nuclear attack threatens the U.S., who is most likely to survive? It’s a question often explored in disaster, end-of-the-world films, but one that has resulted in the beilief growth of an industry devoted to sheltering the wealthy and the powerful in the wake of a serious attack.
+If a nuclear attack threatens the U.S., who is most likely to survive? It’s a question often explored in disaster, end-of-the-world films, but one that has resulted in the belief growth of an industry devoted to sheltering the wealthy and the powerful in the wake of a serious attack.
